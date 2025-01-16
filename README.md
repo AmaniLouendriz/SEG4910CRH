@@ -8,7 +8,7 @@ Naomi Habte  300228315  nhabt020@uottawa.ca
 
 Amani Louendriz  300218319  aloue024@uottawa.ca
 
-Kaveri Poovanum Yeten  300237057  kyete062@uottawa.ca
+Kaveri Yeten  300237057  kyete062@uottawa.ca
 
 Customer name: Sai Vankadari
 
